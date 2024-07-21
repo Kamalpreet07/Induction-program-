@@ -159,6 +159,9 @@ Our senior ***Pancham jai singh gill Sir*** is also good . He started his lacrur
 
 **Fifth day of indution program**
 
+![english](https://github.com/user-attachments/assets/aa0e1e81-12a0-4ee8-8561-9f79ca9e0662)
+
+
 Today we learned how to introduce our self .
 Our professor told us introduce yourself with full of confidence
 and we do a lot and learned from our mistakes also.
