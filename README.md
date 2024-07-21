@@ -20,6 +20,7 @@ in the presence of Guru Granth Sahib Ji. He prays for every one's new beginning.
 Then i took kadah parsad. Outside the Gurudwara Sahib there was a arrangement of lunch 
 for every one. I took my lunch .
 
+![gurudwara sahib](https://github.com/user-attachments/assets/d60b7df9-7385-499d-9537-6df9853fed73)
 
 After lunch i went towards auditorium. In the entrance of auditorium, their was attendence table
 accorning to braches and sections. I went to my CSC table .There i mark my attendence and my file 
