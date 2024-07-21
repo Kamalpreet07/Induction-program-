@@ -33,7 +33,7 @@ I enjoyed so much.
 
 **That was a great day of my life.*
 
-**11/July/2024**
+<h2>11/July/2024</h2>
 
 *Second Day*
 
@@ -79,7 +79,7 @@ Many projects of the college was done under Sir.
 
 *It was all about what has done on the second day of induction program.*
 
-**12/July/2024**
+<h2>12/July/2024</h2>
 
 *Third day*
 
@@ -116,7 +116,7 @@ Universal Human Values Handout 1 of 5 Introduction to Value Education Leading to
 
 *In this lacture we learned a lot.*
 
-**15/July/2024**
+<h2>15/July/2024</h2>
 
 **Fourth day of induction program**
 
@@ -155,7 +155,7 @@ Our senior ***Pancham jai singh gill Sir*** is also good . He started his lacrur
 
 *I love this session a lot*
 
-**16/July/2024**
+<h2>16/July/2024</h2>
 
 **Fifth day of indution program**
 
