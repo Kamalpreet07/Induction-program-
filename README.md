@@ -1,8 +1,8 @@
 # Induction-program-
 
-**10/july/2024**
+**10/July/2024*
 
-My first day in Guru Nanak Dev Engineering College , Ludhiana
+**My first day in Guru Nanak Dev Engineering College , Ludhiana**
 
 I was too much excited for my new beginning.
 I reached my college at 8:30 a.m in the morning.
@@ -25,5 +25,5 @@ After mam our Principal  Sir Dr.Sehijpal singh and other proffessors address us.
 I am feeling very nice. I learnt so many things from all experts. It was a  great experience for me.
 I enjoyed so much.
 
-That was a great day of my life.
+**That was a great day of my life.*
 
