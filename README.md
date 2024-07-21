@@ -283,6 +283,9 @@ do students do in there interview always . Those are selected in the
 interview which have mostly soft skills there is not compulsory to have hard skills . 
 But hard skills a important but firstly you ehance your soft skills for achieving good job.
 
+![soft skills](https://github.com/user-attachments/assets/d69d0f93-8197-4c19-8e7c-c956a2101869)
+
+
 At the she says to us always smile don't panic in your interview.To introduce yourself professionally in an interview, start with a polite greeting, state your full name, mention your educational background and relevant work experience.
 
  **Jaswinder singh**
