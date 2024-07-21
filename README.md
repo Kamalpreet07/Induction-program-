@@ -157,7 +157,7 @@ Our senior ***Pancham jai singh gill Sir*** is also good . He started his lacrur
 
 <h2>16/July/2024</h2>
 
-**Fifth day of indution program**
+**Fifth day of induction program**
 
 ![english](https://github.com/user-attachments/assets/aa0e1e81-12a0-4ee8-8561-9f79ca9e0662)
 
@@ -199,7 +199,7 @@ Recognising
 
 Fulfil
 
-<U>**Three conditions of imagination**</U>
+**Three conditions of imagination**
 
 Preconditioning
 
@@ -211,7 +211,7 @@ Natural acceptance
 
 <h2>18/July/2024</h2>
 
-**Seventh day**
+**Seventh day of induction program**
 
 Today my first class is of *Peer Interaction about College*.
 It is taken by our senior.Sir tell us about the college .
@@ -272,7 +272,7 @@ Development of the personality of students through Community Service.
 
 <h2>19/July/2024</h2>
 
-**Eighth day of indution program**
+**Eighth day of induction program**
 
  **Er.Kanwardeep kalra**
 
