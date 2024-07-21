@@ -292,6 +292,9 @@ At the she says to us always smile don't panic in your interview.To introduce yo
 
 **Incharge:-IAPT**
 
+![jaswinder sir](https://github.com/user-attachments/assets/ab98f2cf-790d-4568-82cc-36bca07bdc02)
+
+
 
 He is a very good personality.He is national awarded(shiksha ratan) (inventor lab on wheels). He gave us a huge knowledge about science and mathematics. He told us that nothing is possible in this world with the help of mathematics. He gave us how to count our bones in our body.
 
