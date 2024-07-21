@@ -88,6 +88,9 @@ My first class was at 9.00 a.m of *Mathematics*.It was taken by *Dr.Sandeep Kaur
 In this class mam thought us the basic formulas of derivatives and integrals.
 Mam also gave us some problems to solve.
 
+![classroom](https://github.com/user-attachments/assets/bdf45579-21e0-41c4-85b5-050597623ba3)
+
+
 After this class my second class was of UHV.
 It was taken by *Ms.Manjot Kaur*.
 
