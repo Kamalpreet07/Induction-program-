@@ -120,10 +120,11 @@ Universal Human Values Handout 1 of 5 Introduction to Value Education Leading to
 
 **Fourth day of induction program**
 
- Today we reach to auditorium and **Dr.Randhir sir**tell us how to login
+ Today we reach to auditorium and **Dr.Randhir sir** tell us how to login
  our github account and we all make it and learn about lot.
 
 ***Dr.Pyara lal Garg***
+
 He address us.He is a very great personality ,simple and loyal person.
 Sir share us very nice lines of poetry.
 Sir said us if you want to shine then nothing is impossible.
