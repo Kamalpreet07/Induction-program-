@@ -11,8 +11,6 @@ I was too much excited for my new beginning.
 I reached my college at 8:30 a.m in the morning.
 There were many students. Nobody is known of me.
 
-![gurudwara sahib](https://github.com/user-attachments/assets/d60b7df9-7385-499d-9537-6df9853fed73)
-
 At 9:00 a.m , i went to Gurudwara Sahib of the campus.
 Almost at 9:20 a.m shabad kirtan was started. I closed my eyes 
 and listen shabad very carefully. After that, granthi singh Ardas
@@ -20,7 +18,8 @@ in the presence of Guru Granth Sahib Ji. He prays for every one's new beginning.
 Then i took kadah parsad. Outside the Gurudwara Sahib there was a arrangement of lunch 
 for every one. I took my lunch .
 
-![gurudwara sahib](https://github.com/user-attachments/assets/d60b7df9-7385-499d-9537-6df9853fed73)
+![inside auditorium](https://github.com/user-attachments/assets/120c2ca9-33a0-4d48-9412-ed6363f9e904)
+
 
 After lunch i went towards auditorium. In the entrance of auditorium, their was attendence table
 accorning to braches and sections. I went to my CSC table .There i mark my attendence and my file 
