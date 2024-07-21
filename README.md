@@ -4,6 +4,9 @@
 
 **My first day in Guru Nanak Dev Engineering College , Ludhiana**
 
+![gndec](https://github.com/user-attachments/assets/fd0a0fe5-b37d-46c1-bda4-ef5cc85897d6)
+
+
 I was too much excited for my new beginning.
 I reached my college at 8:30 a.m in the morning.
 There were many students. Nobody is known of me.
