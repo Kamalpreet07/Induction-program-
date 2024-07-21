@@ -78,3 +78,37 @@ After sir *Dr.H.S.Rai*.address us. Sir is CoE.
 Many projects of the college was done under Sir.
 
 *It was all about what has done on the second day of induction program.*
+
+**12/July/2024**
+
+*Third day*
+
+On the third day of indution program, there were my classes.
+My first class was at 9.00 a.m of *Mathematics*.It was taken by *Dr.Sandeep Kaur Gill Mam*. 
+In this class mam thought us the basic formulas of derivatives and integrals.
+Mam also gave us some problems to solve.
+
+After this class my second class was of UHV.
+It was taken by *Ms.Manjot Kaur*.
+
+**UHV LECTURE**
+
+***Universal Human Values (UHV)***: This class taught us about important values and ethics.
+
+The purpose of education is to facilitate the development of clarity on the aspiration and adequate competence to actualize it. For this, it is essential to understand what a happy, fulfilling and successful life is – what is really valuable for human being; what is our purpose as a human being? Understanding human aspiration, or what is really valuable for human being, is the value domain. The subject which enables us to understand this domain is called ‘Value Education’ (VE). It enables us to understand our aspirations and visualise our goals for a fulfilling life and indicates the direction for their fulfillment. In relation to these issues, it also helps to remove our confusions and contradictions. In that sense, VE addresses the issues related to ‘what to do? .It is also necessary to learn the skills to actualise our aspirations. This is the skill domain. The subject which enables us to learn the skills is called **‘Skill Development’** (SD). It enables us to learn the science, technology, management and other skills for fulfilling our aspiration.
+
+ ***Guidelines for Value Education***
+
+For any input to qualify for Value Education, the following guidelines for the content of the course are important: 
+
+**Universal**:It has to be universally applicable to all human beings for all time and all places. This implies that values should not change according to sect, creed, nationality, gender, etc.
+
+**Rational**: It has to appeal to reasoning; and not be based on dogmas or blind beliefs. It has to be open to address the related questions. It cannot be a set of sermons or do’s and don’ts.
+
+**Natural and Verifiable**: It has to be 'naturally acceptable' to the human being and there needs to be every provision in nature for its fulfillment. It needs to be experientially verifiable, and not based on dogmas, beliefs or assumptions. It is not merely an intellectual exercise or information transfer.
+
+**All Encompassing**: It needs to cover all dimensions (thought, behaviour, work and understanding) and levels (individual, family, society and nature/existence) of human life.
+
+Universal Human Values Handout 1 of 5 Introduction to Value Education Leading to Harmony: It ultimately needs to promote harmony within the individual, among human beings and with the entire nature.
+
+In this lacture we learned a lot.
