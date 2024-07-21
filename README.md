@@ -2,7 +2,7 @@
 
 <h2>10/July/2024</h2>
 
-**My first day in Guru Nanak Dev Engineering College , Ludhiana**
+<h3>My first day in Guru Nanak Dev Engineering College , Ludhiana</h3>
 
 ![gndec](https://github.com/user-attachments/assets/fd0a0fe5-b37d-46c1-bda4-ef5cc85897d6)
 
