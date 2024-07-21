@@ -239,6 +239,8 @@ i go to auditorium.
 
 *3PB BN NCC Ludhiana Group*
 
+![ncc](https://github.com/user-attachments/assets/61f82bac-df3a-4563-bebd-9d7928e12612)
+
 He told us what is the perpose of join NCC .what are the benifites. 
 How to join ? how many vacancies are there .
 
@@ -246,7 +248,7 @@ How to join ? how many vacancies are there .
 
 *Incharge of NSS*
 
-![ncc](https://github.com/user-attachments/assets/61f82bac-df3a-4563-bebd-9d7928e12612)
+![nss](https://github.com/user-attachments/assets/91fabf89-ce1d-4ccb-b7ae-41486261833b)
 
 He also told us how to join NSS and how it is helpful for all student.
 What is the role of NSS students?
