@@ -171,3 +171,41 @@ We also solve jumble words.Senior Our senior gave us a topic to think 3 minutes 
 
 *It was a great day*
 
+<h2>17/July/2024</h2>
+
+**Sixth day of induction program**
+
+Today is our classes. First class is of **Mathematics** . 
+It is taken by *Ms.Rajbir Kaur Mam* . Mam thought us some basic formulas
+of differentiation. She also gave us some problems to solve.
+I enjoy this lecture very much. After this lecture my second second lecture
+was of **UHV (Universal Human Values)**. It was taken by *Ms.Jasmine Kaur*.
+In this lecture i understand the harmony in human being.
+I also learn many things about ***Self and Body***.
+
+**Self** means *what i am*.
+
+**Body** is part of self (outer coverage).
+
+I also learn about natural acceptance. Moreover about the right understanting.
+
+**Respones of Self**
+
+Knowing
+
+Assuming
+
+Recognising
+
+Fulfil
+
+**Three conditions of imagination**
+
+Preconditioning
+
+Sensation
+
+Natural acceptance
+
+*I learn a lot in this class*
+
