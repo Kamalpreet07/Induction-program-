@@ -1,3 +1,5 @@
+#Induction Program
+
 **10/July/2024*
 
 **My first day in Guru Nanak Dev Engineering College , Ludhiana**
@@ -30,3 +32,49 @@ I am feeling very nice. I learnt so many things from all experts. It was a  grea
 I enjoyed so much.
 
 **That was a great day of my life.*
+
+**11/July/2024**
+
+*Second Day*
+
+ In our auditorium there are so many things which our professors and our guide and our seniors told us . 
+ In our induction program all told us how to  do anywork and how to inhance your skills .
+
+**Firstly Dr.Arvind Dhingra Sir**
+
+He is the chairman of of **"Technical Activities committee "**
+He has a very nice experience.He told us that best music for us is our own heartbeat.
+If one negative thoughts come inside our minde then I destroy 17 positive thoughts.
+We all have 86400sec in daily thats a challenge for us how to spend this time . Sir also told us 
+about memberships in different societies.
+
+*Types of memberships*
+
+1.Members
+2.Active members 
+3.Excutive members
+4.Office Bearers
+
+*Names of different societies*
+
+1.SCIE(Student chapter of institution of engineering) which is found in 1969
+
+2.ISTE(Indian society for tec.education)
+
+3.E2S2(Electrical engineering staff and student)
+
+4.SAE INDIA
+
+**3PS for Sucess**
+
+*Passion*
+*Persistence*
+*Patience*
+
+After sir *Dr. Parminder Singh Sir* address us. Sir is *Dean of student welfare*.
+Sir told us about the college and about the different policies of the college.
+Sir also told us about the different scholarships available for the students.
+After sir *Dr.H.S.Rai*.address us. Sir is CoE.
+Many projects of the college was done under Sir.
+
+*It was all about what has done on the second day of induction program.*
