@@ -10,6 +10,9 @@
 I was too much excited for my new beginning.
 I reached my college at 8:30 a.m in the morning.
 There were many students. Nobody is known of me.
+
+![gurudwara sahib](https://github.com/user-attachments/assets/d60b7df9-7385-499d-9537-6df9853fed73)
+
 At 9:00 a.m , i went to Gurudwara Sahib of the campus.
 Almost at 9:20 a.m shabad kirtan was started. I closed my eyes 
 and listen shabad very carefully. After that, granthi singh Ardas
