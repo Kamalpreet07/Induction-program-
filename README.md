@@ -155,3 +155,16 @@ Our senior ***Pancham jai singh gill Sir*** is also good . He started his lacrur
 
 *I love this session a lot*
 
+**16/July/2024**
+
+**Fifth day of indution program**
+
+Today we learned how to introduce our self .
+Our professor told us introduce yourself with full of confidence
+and we do a lot and learned from our mistakes also.
+Our teachers divide our class into two teams for a **Quiz competition**.
+In quiz their was questions related to english grammar. I enjoy this class very much.
+We also solve jumble words.Senior Our senior gave us a topic to think 3 minutes and speak on it.
+
+*It was a great day*
+
