@@ -269,3 +269,30 @@ Development of the personality of students through Community Service.
 6. To gain skills in programme development to enable him/her for self-employment.
 7. To bridge the gulf between the educated and the uneducated masses.
 8. To promote the will to serve the weaker section of the community.
+
+<h2>19/July/2024</h2>
+
+**Eighth day of indution program**
+
+ **Er.Kanwardeep kalra**
+
+She is a very very confident,understanding,great pot of knowledge.
+She gave us a huge amount of knowledge.Through a small activity.
+She told us how to prepared our interview and what kind of mistakes
+do students do in there interview always . Those are selected in the
+interview which have mostly soft skills there is not compulsory to have hard skills . 
+But hard skills a important but firstly you ehance your soft skills for achieving good job.
+
+At the she says to us always smile don't panic in your interview.To introduce yourself professionally in an interview, start with a polite greeting, state your full name, mention your educational background and relevant work experience.
+
+ **Jaswinder singh**
+
+**Incharge:-IAPT**
+
+
+He is a very good personality.He is national awarded(shiksha ratan) (inventor lab on wheels). He gave us a huge knowledge about science and mathematics. He told us that nothing is possible in this world with the help of mathematics. He gave us how to count our bones in our body.
+
+**Counting of bones:-**
+
+Firstly we know that we al have 206 bones but how to count ?
+Thats a question which solve sir with following ways :-
