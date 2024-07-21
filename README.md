@@ -218,4 +218,50 @@ It is taken by our senior.Sir tell us about the college .
 He also tell us about the different societies and clubs in the college.
 He tell us about the benefits to join these clubs and societies. 
 He tell us about the examination system of the college and about the marks  
-distribution  of different Subjects.
+distribution of different Subjects. He also tells us How to find G.P of our marks.
+It was a great lecture i learned so many new things.
+
+My second lecture is of *Mathematics*.
+It is taken by *Dr.Sandeep Kaur Gill Mam**.
+Mam Give us twelve problems to solve.
+I enjoy to solve these problems.
+everyone easily solve these problems because these 
+are based on 12th syllabus.I love this lecture.
+
+After two lectures their is break for everyone.After break
+i go to auditorium.
+
+**Dr.Harwinder Singh**
+
+*He is associate NCC Officer (ANO)*
+
+*GNDEC Ludhiana*
+
+*3PB BN NCC Ludhiana Group*
+
+He told us what is the perpose of join NCC .what are the benifites. 
+How to join ? how many vacancies are there .
+
+**Pf.Jasvir singh grewal**
+
+*Incharge of NSS*
+
+He also told us how to join NSS and how it is helpful for all student.
+What is the role of NSS students?
+
+**Duties of NSS Volunteers**:Identify needs. Problems and resources of the community. iii. Plan Programmes and carry out the plans.
+
+**Aim of NSS:**
+
+Development of the personality of students through Community Service.
+
+**Objectives of NSS:**
+
+1. To work with / among people.
+2. To engage in creative and constructive social action.
+3. To enhance his/her knowledge of himself / herself and the community.
+4. To put his/her scholarship to practical use in mitigating at least some of the problems.
+5. To gain skill in the exercise of democratic leadership.
+6. To gain skills in programme development to enable him/her for self-employment.
+7. To bridge the gulf between the educated and the uneducated masses.
+8. To promote the will to serve the weaker section of the community.
