@@ -302,3 +302,7 @@ He is a very good personality.He is national awarded(shiksha ratan) (inventor la
 
 Firstly we know that we al have 206 bones but how to count ?
 Thats a question which solve sir with following ways :-
+
+![bones](https://github.com/user-attachments/assets/99707f55-5630-4f40-85ca-e4743a643982)
+
+*I enjoy this session a lot*
