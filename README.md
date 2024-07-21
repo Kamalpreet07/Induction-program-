@@ -1,6 +1,6 @@
 <h1>**#Induction Program**</h1>
 
-**10/July/2024**
+<h2>10/July/2024</h2>
 
 **My first day in Guru Nanak Dev Engineering College , Ludhiana**
 
