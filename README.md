@@ -209,3 +209,13 @@ Natural acceptance
 
 *I learn a lot in this class*
 
+<h2>18/July/2024</h2>
+
+**Seventh day**
+
+Today my first class is of *Peer Interaction about College*.
+It is taken by our senior.Sir tell us about the college .
+He also tell us about the different societies and clubs in the college.
+He tell us about the benefits to join these clubs and societies. 
+He tell us about the examination system of the college and about the marks  
+distribution  of different Subjects.
