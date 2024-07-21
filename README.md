@@ -1,6 +1,6 @@
-#Induction Program
+**#Induction Program**
 
-**10/July/2024*
+**10/July/2024**
 
 **My first day in Guru Nanak Dev Engineering College , Ludhiana**
 
@@ -114,4 +114,43 @@ For any input to qualify for Value Education, the following guidelines for the c
 
 Universal Human Values Handout 1 of 5 Introduction to Value Education Leading to Harmony: It ultimately needs to promote harmony within the individual, among human beings and with the entire nature.
 
-In this lacture we learned a lot.
+*In this lacture we learned a lot.*
+
+**15/July/2024**
+
+**Fourth day of induction program**
+
+ Today we reach to auditorium and **Dr.Randhir sir**tell us how to login
+ our github account and we all make it and learn about lot.
+
+***Dr.Pyara lal Garg***
+He address us.He is a very great personality ,simple and loyal person.
+Sir share us very nice lines of poetry.
+Sir said us if you want to shine then nothing is impossible.
+You do and believe your ouw self . If you want to do then
+you do what you like to do. Always think positive not negitive.
+There are so many problems in your life but you face and win from it.
+There is a no person in the world who is not get faliures.So come front
+and face problem and handel them then you succeed in life.
+Person live with hopes why you are hopeless?
+
+***Mr Sony goyal***
+
+He is also a very nice personality. He gave us a huge amount 
+and quantity of knowledge.He gave us first lesson that was
+Give your 100%.Love what you do .
+
+***4Years LIFE @B tech*** 
+
+**Learn**
+
+**Inquire**
+
+**Future**
+
+**Explore**
+
+Our senior ***Pancham jai singh gill Sir*** is also good . He started his lacrure from back of the auditorium. To pay some attention form the audience . He gave us huge amount of knowledge also told us how to judge a person from its pose .
+
+*I love this session a lot*
+
