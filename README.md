@@ -316,3 +316,13 @@ He is a very nice personality. He thaught us how to understand our self.How to k
 **Dr.Pushpinder singh**
 
 He is a very nice personality. He is belong from those family were all the members are mostly doctors. He had a huge knowledge and gave to us.He taught us you know what is your skill? in which way you easy learn ? from writing and listening that's depend upon you.He also told us you can understand what is your failure and how i forgot that and win in acutual in life . If we all have any problem then we share with our mentor and got its solutions.
+
+<h2>23/July/2024</h2>
+
+Today our first lecture is at 9.00 a.m.
+It is about basics of chemistry.It is taken by **Karan Bhalla sir**. Sir has an amazing personality.Sir is also very punctual.He enter in the classroom right 9. a.m. Sir first told us to introduce yourself. Sir's  way of teaching is very amazing. Sir first teach us organic chemistry. In this we learn the open structures ,hydrocarbons and many more thing .Then he teach us about in organic chemistry. In this we learn the electronic configuration of elements.Then sir teach us about physical chemistry. In this we learn about the osmosis.
+
+My second lecture is  at 11.00.a.m.
+It is about peer interaction to technical. It is taken by our seniors. In this we learn about excel, chatgbt and artificial intelligence.
+
+It is amazing day.
