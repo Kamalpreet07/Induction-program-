@@ -306,3 +306,13 @@ Thats a question which solve sir with following ways :-
 ![bones](https://github.com/user-attachments/assets/99707f55-5630-4f40-85ca-e4743a643982)
 
 *I enjoy this session a lot*
+
+<h2>22/July/2024</h2>
+
+**Dr.SB Singh** 
+
+He is a very nice personality. He thaught us how to understand our self.How to know yourself. He told us pick one page from your copy and pick a pen then write what is your name and from where you complete your study?How much percentage you got in 12th examination and your address anf pin code . your weakness and your shining point. He told us ill gave you 3 mint to you and you take a dream and write in your page. Then he collected all pages. from this activity we all students understand what is our hobbies and what are your weaknesses and how we deal with thats all.
+
+**Dr.Pushpinder singh**
+
+He is a very nice personality. He is belong from those family were all the members are mostly doctors. He had a huge knowledge and gave to us.He taught us you know what is your skill? in which way you easy learn ? from writing and listening that's depend upon you.He also told us you can understand what is your failure and how i forgot that and win in acutual in life . If we all have any problem then we share with our mentor and got its solutions.
