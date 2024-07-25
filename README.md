@@ -1,4 +1,4 @@
-k<h1>**#Induction Program**</h1>
+ik<h1>**#Induction Program**</h1>
 
 <h2>10/July/2024</h2>
 
@@ -329,6 +329,10 @@ It is amazing day.
 
 <h2>24/July/2024</h2>
 
-Mr.Gauravdeep singh
+**Mr.Gauravdeep singh**
 
 He is a very nice personality. He got so many National awards . He is the owner of "IOC". He is belong from a very simple family.His mother is depressed lady and father has a dhabha . He taught us how he succeeded in his life. When he was in 1-10th he enjoys a lot and got very nice percent in his 10th exams and got science stream .When he was in 11th he is non serious and he failed in exams then principal called his mother to school and she's cry .At that time he feel very sad and want to do something for his mother then he spent his time to choose which stream is best for his.Then he do his study and got 96.8% and top in district. He share his all physical problems and finenational problems and how it can be solve . From his lacture i am very impressed because i got such a huge knowledge from that lacture.
+
+**Er.Lakhveer singh Coordinator CML**
+
+Lakhveer sir tell us about CML
