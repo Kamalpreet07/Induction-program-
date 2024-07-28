@@ -358,8 +358,7 @@ In the starting of that particular part there are few performances for us.
 
 **Here are a veiw*
 
-
-
+![casumic](https://github.com/user-attachments/assets/8bc028af-056c-4340-80b7-4dbcc75b0d6c)
 
 After that they teach us about causmic club .
 
