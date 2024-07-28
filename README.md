@@ -348,7 +348,7 @@ He is a very nice personality. He got so many National awards . He is the owner 
 
 **list of equipment*
 
-
+![list](https://github.com/user-attachments/assets/e9494d9d-de94-4b96-a36e-b92caa1fe576)
 
 
 **Causmic Club**
