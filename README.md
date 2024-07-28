@@ -390,4 +390,10 @@ Today is a last day of induction and we all start our day from a **"ਮੂਲ �
 
 Mam first tell us about what is meditation and what is its benefits then play a movie about meditation and after that we all do meditation 15 mint and feeling very well. Meditation is a very powerful which kill all disease and problems.
 
+![mediation](https://github.com/user-attachments/assets/34eaac3d-bb5e-414d-b574-3a6b01377c14)
+
+After that there is *Cultural Orientation Program* for first year students.
+In this there is different competitions like fine art , solo dance , solo singing .
+
+**Some Glimpses of the program*
 
