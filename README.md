@@ -337,4 +337,29 @@ He is a very nice personality. He got so many National awards . He is the owner 
 
 **Er.Lakhveer singh Coordinator CML**
 
-Lakhveer sir tell us about CML
+**Lakhveer sir tell us about CML*
+
+![cml](https://github.com/user-attachments/assets/4173460d-9d7c-4868-b35e-d48581cf9b84)
+
+**Mission and vision*
+
+
+
+**list of equipment*
+
+
+
+
+**Causmic Club**
+
+After that all our seniors organised a program through causmic club. 
+In the starting of that particular part there are few performances for us.
+
+**Here are a veiw*
+
+
+
+
+After that they teach us about causmic club .
+
+
