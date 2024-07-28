@@ -397,3 +397,11 @@ In this there is different competitions like fine art , solo dance , solo singin
 
 **Some Glimpses of the program*
 
+![song](https://github.com/user-attachments/assets/0ac7624a-8b42-4386-8991-eb679d869669)
+
+
+![dance](https://github.com/user-attachments/assets/b64ad8d6-4856-45a9-bc8c-18bdd46b26fe)
+
+**I enjoy a lot*
+
+
