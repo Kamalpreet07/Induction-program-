@@ -362,4 +362,6 @@ In the starting of that particular part there are few performances for us.
 
 After that they teach us about causmic club .
 
+![qr](https://github.com/user-attachments/assets/cd576cdc-e871-430c-93ba-9a0fda75eafb)
+
 
