@@ -382,6 +382,12 @@ After completing my test i submit it to mam. Then i am free.
 *IT was a amazing day*.
 
 
+<h2>26/July/2024</h2>
 
+Today is a last day of induction and we all start our day from a **"ਮੂਲ ਮੰਤਰ"** Then few students do shabad kirtan and we all listen it and cover our heads.
+
+**Meditation Counsellor & homeopathic Practitioner Dr.Kanwalpreet kaur bhatt**
+
+Mam first tell us about what is meditation and what is its benefits then play a movie about meditation and after that we all do meditation 15 mint and feeling very well. Meditation is a very powerful which kill all disease and problems.
 
 
