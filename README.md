@@ -364,4 +364,16 @@ After that they teach us about causmic club .
 
 ![qr](https://github.com/user-attachments/assets/cd576cdc-e871-430c-93ba-9a0fda75eafb)
 
+<h2>25/July/2024</h2>
+
+Today is our classes. My first class is of UHV. It is taken by *Miss.Manjot Kaur Mam*. Mam first 
+revise the previous chapters . And then Mam teaches us a new chapter Understanding the harmony in family . 
+I learm so much from this lecture. After this lecture my second lecture is of *peer interaction to canva*.
+It was taen by our seniors. They first tell us about canva. Then tell us the benefits of using canva.
+They also tell us how to make posters in canva.
+
+*This is my first poster*
+
+
+
 
