@@ -376,6 +376,11 @@ They also tell us how to make posters in canva.
 
 ![smile](https://github.com/user-attachments/assets/94a7324c-f9bd-4b83-b620-d1dbccccfb83)
 
+After this  class their is break for us . After break i have maths test.
+the test has four questions from the twelveth based syllabus . The test  is easy . 
+After completing my test i submit it to mam. Then i am free.
+*IT was a amazing day*.
+
 
 
 
