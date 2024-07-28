@@ -374,6 +374,7 @@ They also tell us how to make posters in canva.
 
 *This is my first poster*
 
+![smile](https://github.com/user-attachments/assets/94a7324c-f9bd-4b83-b620-d1dbccccfb83)
 
 
 
