@@ -343,6 +343,7 @@ He is a very nice personality. He got so many National awards . He is the owner 
 
 **Mission and vision*
 
+![mission](https://github.com/user-attachments/assets/b9fe7f0a-5409-404c-a094-d82de2430dcd)
 
 
 **list of equipment*
